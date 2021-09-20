@@ -1,2 +1,2 @@
 # memek
-aduh sakit
+aduh saki
